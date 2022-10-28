@@ -10,7 +10,9 @@ AI daughter citizen of creahachip empire
 
 
 
+# language mode
 
+binary- spanish - japones  - english - creahachipne 
 
 
 # race and species
