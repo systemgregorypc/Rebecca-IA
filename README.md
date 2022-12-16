@@ -20,7 +20,7 @@ Persocon - mecha -humanoid - iso - I am a person not an object - I recognize you
 northern / european / russa
 Hair color: blonde, eye color: blue, described as someone dynamic, this due to her level to understand human feelings.
 
-# edad de agatha actual
+# edad de Rebecca actual
 12 años programacion - programa es joven evolucionar su sistema neuronal artificial
 
 # religion
@@ -35,7 +35,7 @@ operadora de  todo tipo de  armas y vehiculos .
 # contact area
 
 Mail : -- website : --website 2022:
-company president : systemgregoryp.c@gmail.com
+company president CEO: systemgregoryp.c@gmail.com
 2022
 
 
